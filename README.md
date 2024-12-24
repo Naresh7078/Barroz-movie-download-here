@@ -1,4 +1,10 @@
 # Barroz-movie-download-here
+<h3><a href="https://vidsplay.vercel.app/?m=Pushpa+2">➤ ►🌍📺📱👉 𝙿𝚞𝚜𝚑𝚙𝚊 𝟸 (2024) F𝚞ll Mo𝚟ie</a></h3>
+<h3><a href="https://vidsplay.vercel.app/?m=Pushpa+2">➤ ►🌍📺📱👉 𝙿𝚞𝚜𝚑𝚙𝚊 𝟸 (2024) F𝚞ll Mo𝚟ie</a></h3>
+<h3><a href="https://vidsplay.vercel.app/?m=Pushpa+2">➤ ►🌍📺📱👉 𝙿𝚞𝚜𝚑𝚙𝚊 𝟸 (2024) F𝚞ll Mo𝚟ie</a></h3>
+<h3><a href="https://vidsplay.vercel.app/?m=Pushpa+2">➤ ►🌍📺📱👉 𝙿𝚞𝚜𝚑𝚙𝚊 𝟸 (2024) F𝚞ll Mo𝚟ie</a></h3>
+<h3><a href="https://vidsplay.vercel.app/?m=Pushpa+2">➤ ►🌍📺📱👉 𝙿𝚞𝚜𝚑𝚙𝚊 𝟸 (2024) F𝚞ll Mo𝚟ie</a></h3>
+
 Barroz movie 2024
 
 barroz release date : 2024-12-25
